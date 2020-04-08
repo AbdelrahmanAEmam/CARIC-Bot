@@ -1,2 +1,2 @@
 # CARIC-Bot
-## 🚧👷🚧 ...Under Construction... 🚧👷🚧
+## 👷🚧 ...Under Construction... 🚧👷
